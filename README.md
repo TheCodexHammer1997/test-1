@@ -1,8 +1,8 @@
 # test-1
 
-Sharad Chaubey
-Attack on Titans
-Grew Up at midnight
+Sharad Chaubey is my Name
 
-SHINZO SASAGAEYO!!!
+Looking fowrward to learn with you all
+
+Let's just GIT on with it!!!
 
